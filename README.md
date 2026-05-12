@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ManuellaPuplampu
 - 👀 I’m interested in Data Protection
-- 🌱 I’m currently learning CyberSecurity
+- 🌱 I’m currently a CyberSecurity Analyst
 - 💞️ I’m looking to collaborate on Data Protection
 - 📫 You can reach me via obaayaa5398@gmail.com
 - 😄 Pronouns: Miss Nuella
